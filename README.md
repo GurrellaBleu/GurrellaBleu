@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @GurrellaBleu
 - 👀 I’m interested in Music, Traveling, Fines Arts, Gym
-- 🌱 I’m currently learning ... to become a Ethical Hacker
+- 🌱 I’m currently learning ... to become a Ethical Hacker/Blockchain Web3 Development
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ... Telegram @FaceMob69 IG @Bleu_Haze420 
 
